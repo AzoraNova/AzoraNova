@@ -24,7 +24,7 @@ I’m Aharon, a programmer, gamer, and Linux enthusiast. I spend most of my time
 
 ## 📫 How to reach me...
 
-You can reach out to me via my websiet contact page, when I get time to update it I'll add it here :)
+You can reach out to me via my website contact page, when I get time to update it I'll add it here :)
 
 ## 😄 Pronouns: He/Him
 
